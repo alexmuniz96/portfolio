@@ -1,1 +1,1 @@
-https://alexmuniz96.github.io
+https://alexmuniz96.github.io/portfolio/
